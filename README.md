@@ -44,7 +44,7 @@ Education & Certifications
 
 Professional Contact
 
-- LinkedIn: "Ameer Alashi" (https://linkedin.com/in/ameer-alashi)
+- LinkedIn: (https://www.linkedin.com/in/ameer-alashi-5b2a3b3a1/)
 
 ---
 
